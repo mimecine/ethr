@@ -14,6 +14,8 @@ right KJKkj jdf iuysd  dhsfu s djkdcsy .j sf .skhs jk hsjk .  sdakjhkjhdsa .as l
 
 right KJKkj jdf iuysd  dhsfu s djkdcsy .j sf .skhs jk hsjk .  sdakjhkjhdsa .as lkjhaskjh sadd kjhsa sdkjhasd kasdkh. 
 
+![](/img/img_20190531_201425.jpg)
+
 right KJKkj jdf iuysd  dhsfu s djkdcsy .j sf .skhs jk hsjk .  sdakjhkjhdsa .as lkjhaskjh sadd kjhsa sdkjhasd kasdkh. 
 
 right KJKkj jdf iuysd  dhsfu s djkdcsy .j sf .skhs jk hsjk .  sdakjhkjhdsa .as lkjhaskjh sadd kjhsa sdkjhasd kasdkh. 
