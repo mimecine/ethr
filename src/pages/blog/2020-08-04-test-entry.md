@@ -4,7 +4,7 @@ title: Test entry
 date: 2020-08-04T09:35:40.285Z
 description: This is the description of it
 featuredpost: true
-featuredimage: /img/shigeru-ban-basic-art.jpg
+featuredimage: /img/img_20190531_201425.jpg
 tags:
   - test hey
 ---
