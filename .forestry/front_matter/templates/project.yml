@@ -49,3 +49,5 @@ fields:
     max: 
     labelField: 
   label: Images
+pages:
+- projects/a-project.md
