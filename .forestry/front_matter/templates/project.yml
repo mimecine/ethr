@@ -49,5 +49,9 @@ fields:
     max: 
     labelField: 
   label: Images
+- name: gallery
+  type: image_gallery
+  config: {}
+  label: Gallery
 pages:
 - projects/a-project.md
